@@ -20,7 +20,7 @@ rdv à prendre :
 
 ...
 
-03/03/2023 : SOS Médecins. Douleurs dents + gencives côté droit.
+03/03/2023 : SOS Médecins. Douleurs dents + gencives côté droit. D'après Dr, c'est une gingivite.
 
 Ordonance :
 - PREDNISOLONE, 3,5 comprimés matin - pendant 5j
